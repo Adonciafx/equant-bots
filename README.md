@@ -1,5 +1,6 @@
 # equant-bots
 Lanceas.ᛠ#1953 adlı türemenin ifşası
+https://discord.gg/equant sunucya girerek bakabilirsiniz
 botları rar olarak atacağım buraya v12 zamanı beğendigim botları editlemiştim svyi kursun diye vdsne atmıştım şifre değişmiş bu arada old vds bilgileri ahahyt 
 213.238.182.106
 administrator

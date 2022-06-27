@@ -11,3 +11,4 @@ gerçi paranız yok demi avukat tutacak xd
 Daha readme yapmayı bilmeyen insan bana laf atıyor ya yazık
 <img src= "https://cdn.discordapp.com/attachments/976847893791146035/989869857237512273/unknown.png">
 <img src= "https://cdn.discordapp.com/attachments/902302627767918602/990342848752799856/unknown.png">
+kod dilenen arda
